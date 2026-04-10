@@ -33,7 +33,7 @@ entspricht.
 ## 6. Betroffenenrechte
 Sie haben das Recht auf Auskunft, Berichtigung, Löschung und 
 Einschränkung der Verarbeitung Ihrer Daten.  
-Kontakt: DEINE@EMAIL.DE
+Kontakt: online@frommeyer.de
 
 ## 7. Beschwerderecht
 Zuständige Aufsichtsbehörde:  
